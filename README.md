@@ -1,4 +1,8 @@
 # sac_46
 for one practice
-im not in stable on track having on 240bhp on just 190kg 
-11000rpm touch in 350k/h
+
+there are two beauties one is for drag race and another for track race
+
+busa im having 215 bhp 
+
+and top speed in 11000rpm in 310kmh 
